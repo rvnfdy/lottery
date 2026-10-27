@@ -1,1 +1,1 @@
-htpps://rvnfdy.github.io/lottery/lottery.html
+Site: https://rvnfdy.github.io/lottery/lottery.html
